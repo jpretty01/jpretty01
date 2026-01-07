@@ -2,7 +2,7 @@ Hi, im jpretty01.
 
 Founder of TMFPRETTY, LLC
 
-Creator of C.A.R.U.S.O.
+Creator of CARUSO
 
 Love Teaching, AI/ML, Project Management, Quality Assurance
 <!---
