@@ -2,6 +2,8 @@ Hi, im jpretty01.
 
 Founder of TMFPRETTY, LLC
 
+https://jpretty01.github.io
+
 Creator of CARUSO
 
 https://caruso-platform.com/
